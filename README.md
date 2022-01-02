@@ -1,3 +1,3 @@
-17 yo | MascBoy | He/Him | Demiromantic | Greyasexual/Aspec | Straight | Cisgender | Single | Asperger | Québécois | Atheist | AuthNatProg | ISTJT
+18 yo | Male | He/Him | Demiromantic | Greyasexual/Aspec | Straight | Cisgender | Single | Asperger | Québécois | Atheist | Technopopulist | ISTJT
 
-My links : https://linktr.ee/Quark88
+MY LINKS ❱❱❱ https://linktr.ee/Quark88
