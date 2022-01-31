@@ -1,3 +1,3 @@
-MY LINKS ❱❱❱ https://linktr.ee/Quark88
+**MY LINKS ❱❱❱  https://pcbquark.carrd.co**
 
-18 yo | Male | He/Him | Demiromantic | Greyasexual/Aspec | Straight | Cisgender | Single | Asperger | Québécois | Atheist | Technopopulist | ISTJT
+18 yo | Male | He/Him | Demiromantic | Greyasexual | Straight | Cisgender | Single | Asperger | Québécois | Atheist | Technopopulist | ISTJ-T 6w5
