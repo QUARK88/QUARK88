@@ -1,3 +1,2 @@
-**MY LINKS ❱❱❱  https://pcbquark.carrd.co**
-
-18 yo | Male | He/Him | Demiromantic | Greyasexual | Straight | Cisgender | Single | Asperger | Québécois | Atheist | Technopopulist | ISTJ-T 6w5
+**MY LINKS ❯❯❯  https://realquark.carrd.co/**
+🔞 18 | ♂️ He/Him | ♦ Demiromantic | ♣ Greyasexual | 📏 Gynephilic | ⚜️ Québécois | ⚛️ Positive Atheist | 🔄 Asperger | 🦾 ISTJ-T 6w5
